@@ -1,1 +1,0 @@
-güray yıldırım
